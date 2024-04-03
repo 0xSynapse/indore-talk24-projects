@@ -1,0 +1,1 @@
+# indore-talk24-projects
